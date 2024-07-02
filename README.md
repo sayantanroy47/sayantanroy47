@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on a project named Nothing
 - 🌱 I’m currently working in Nothing
-- 👯 I’m looking to collaborate on Noone
+- 👯 I’m looking to collaborate with Noone
 - 🤔 I’m looking for help for Nothing
 - 💬 Ask me about Nothing
 - 📫 How to reach me: will tell you later
